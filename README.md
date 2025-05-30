@@ -1,7 +1,7 @@
 ## Hi, I’m Dija ˖˚⊹ ꣑ৎ‎
 
 🧷 Computer Science + Culture and Technology student at UofG </br>
-🐇 I really like apples :D
+🐇 I like apples :D
 
 
 #  ༊*·˚ Tech Stack:
