@@ -1,4 +1,4 @@
-## Hi, I’m Dija ˖˚⊹ ꣑ৎ‎
+## Hi, I’m Khadija ˖˚⊹ ꣑ৎ‎
 
 🧷 Computer Science + Culture and Technology student at UofG </br>
 🐇 I like apples :D
