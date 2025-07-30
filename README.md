@@ -1,6 +1,6 @@
 ## Hi, I’m Khadija ˖˚⊹ ꣑ৎ‎
 
-🧷 Computer Science + Culture and Technology student at UofG </br>
+🧷 Computer Science & CTS + Math student at UofG </br>
 🐇 I like apples :D
 
 
