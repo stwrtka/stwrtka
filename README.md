@@ -1,7 +1,7 @@
-## Hi, I’m Khadija ˖˚⊹ ꣑ৎ‎
+## Hi, I’m Khadija‎
 
 🔗 CS + CTS & Math student at UofG </br>
-🍏 I like apples
+𐔌՞. .՞𐦯 I like apples
 
 
 #  ༊*·˚ Tech Stack:
